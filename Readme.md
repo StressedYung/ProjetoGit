@@ -1,0 +1,1 @@
+Olã seus puto, to perdido pra caraio tentando aprender git
